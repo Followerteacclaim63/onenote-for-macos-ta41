@@ -1,4 +1,4 @@
-#  
+#  OneNote for macOS custom Tool - custom themes and focus mode offers the most advanced OneNote for macOS tool, with custom themes and focus mode. Ideal for professionals.
 
 
 
